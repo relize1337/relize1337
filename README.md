@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @relize1337
-- 👀 I’m interested in developement.
+- 👀 I’m interested in development.
 - 🌱 I'm currently learning nothing, because im beautiful and Smart.
 - 📫 How to reach me -> relize#1337
 
